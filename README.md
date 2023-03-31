@@ -1,1 +1,1 @@
-# 2b-programa-ao-lorena
+# 2b-programacao-joao
